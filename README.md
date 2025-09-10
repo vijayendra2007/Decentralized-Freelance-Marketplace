@@ -125,3 +125,5 @@ Our vision is to democratize content creation and establish a new paradigm for d
 5. Build your following and start earning from your content
 
 Join the revolution in decentralized publishing and help build a truly free and open internet where every voice matters and every story can be told without fear of censorship or control.
+contract :-<img width="1537" height="862" alt="Screenshot 2025-09-10 105851" src="https://github.com/user-attachments/assets/ccaef17d-4b6c-4f51-9fc1-d6a4ffe20faf" />
+
